@@ -7,3 +7,4 @@ Miscellaneous work
 
 Pegboard attachments:
 
+![image](https://github.com/user-attachments/assets/7dc00217-6350-4e1a-a7b2-f1e40805fdd0)
